@@ -1,1 +1,0 @@
- <article></article><input data="dot"><a href="https://tinyurl.com/yboszn7x">manchester united vs benfica </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>   
